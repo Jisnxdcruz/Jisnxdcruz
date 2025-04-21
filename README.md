@@ -1,6 +1,6 @@
 # Hey there! I'm Jisna Dcruz 👋
 
-🎓 Final year Computer Science student  
+🎓 graduated Computer Science   
 🎨 Creative soul + 💻 Tech explorer  
 💃 Dancer | 🏋️‍♀️ Gym girl | 🎨 Artist | ⚡ Power-packed learner  
 
