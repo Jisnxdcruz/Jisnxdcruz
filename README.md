@@ -2,7 +2,7 @@
 
 🎓 graduated Computer Science   
 🎨 Creative soul + 💻 Tech explorer  
-💃 Dancer | 🏋️‍♀️ Gym girl | 🎨 Artist | ⚡ Power-packed learner  
+💃 Dancer | 🏋️‍♀️ Athlete| 🎨 Artist | ⚡ Power-packed learner  
 
 ---
 
