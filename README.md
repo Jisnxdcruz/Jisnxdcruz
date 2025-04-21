@@ -1,4 +1,4 @@
-# Hey there! I'm Jisna Dcruz 👋
+# Hey there! I'm Jisnamary Dcruz 👋
 
 🎓 graduated Computer Science   
 🎨 Creative soul + 💻 Tech explorer  
